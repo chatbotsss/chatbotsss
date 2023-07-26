@@ -1,0 +1,1 @@
+Chó là một loài thân thiện với con người, là một trong những loài động vật thú cưng giống như mèo. Tại các nước châu Âu như Mĩ, họ coi chú chó của mình như là một thành viên trong gia đình, họ tin rằng chú chó của họ xúng đáng được đối xử như một người bạn và cấn phải có những quyền như một con người 
